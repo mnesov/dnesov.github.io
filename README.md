@@ -10,4 +10,8 @@ And more is coming soon!
 #Have idea? Tell me!
 Sometimes i don't have a idea for my little projects. You can write me an email (d.nesov@gmail.com), I will answer. The best idea will get to my site.
 
+#Follow me
+I'm in facebook (here)
+
+
 
