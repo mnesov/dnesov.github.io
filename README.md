@@ -1,6 +1,5 @@
 # About Site
-My site for small projects.
-Any user can download a code and use it for site.
+My site for small projects. Any user can download the code and use it to your site.
 
 
 #Have idea? Tell me!
